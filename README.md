@@ -38,7 +38,7 @@ url：[抖音视频](https://www.douyin.com/user/MS4wLjABAAAADx_DrMSHQFY57xBVQDh
 
 18 And now we need to break these down intodoable steps. So maybe you want to write afamily history. First, you can read someother family histories, get a sense for thestyle. Then maybe think about the questionsyou want to ask your relatives, set upappointments to interview them.Or maybeyou want to run a $K. So you need to find arace and sign up, figure out a training plan,and dig those shoes out of the back of thecloset. And then -- this is key -- we treat ourpriorities as the equivalent of that brokenwater heater, by putting them into ourschedules first. We do this by thinkingthrough our weeks before we are in them.
 
-19 I find a really good time to do this is Fridayafternoons. Friday afternoon is what aneconomist might call a "low opportunitycost" time. Most of us are not sitting there onFriday afternoons saying, "【 am excited tomake progress toward my personal andprofessional priorities right now."But we arewilling to think about what those should be.
+19 I find a really good time to do this is Fridayafternoons. Friday afternoon is what aneconomist might call a "low opportunitycost" time. Most of us are not sitting there onFriday afternoons saying, "I am excited tomake progress toward my personal andprofessional priorities right now."But we arewilling to think about what those should be.
 
 20 So take a little bit of time Friday afternoon.make yourself a three-category priority list:career, relationships, self. Making a three-category list reminds us that there should besomething in all three categories.
 
