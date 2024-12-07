@@ -1,5 +1,6 @@
 # How to gain control of your free time
 auther:Laura Vanderkam
+url：[抖音视频](https://www.douyin.com/user/MS4wLjABAAAADx_DrMSHQFY57xBVQDhOPyQnnwcaS2Vh6aqW3EQN2ntjJyJMVeJngLHnVAaJScGf?from_tab_name=main&modal_id=7348456391679446313)
 
 When people find out I write about timemanagement, they assume two things. One isthat I'm always on time, and I'm not. I havefour small children, and I would like to blamethem for my occasional tardiness, butsometimes it's just not their fault. I was oncelate to my own speech on time management.We all had to just take a moment together andsavor that irony.
 
