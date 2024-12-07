@@ -4,7 +4,7 @@ url：[抖音视频](https://www.douyin.com/user/MS4wLjABAAAADx_DrMSHQFY57xBVQDh
 
 # 1 
 
-## When people find out I write about timemanagement, they assume two things. One isthat I'm always on time, and I'm not. I havefour small children, and I would like to blamethem for my occasional tardiness, butsometimes it's just not their fault. I was oncelate to my own speech on time management.We all had to just take a moment together andsavor that irony.
+## When people find out I write about time management, they assume two things. One isthat I'm always on time, and I'm not. I havefour small children, and I would like to blamethem for my occasional tardiness, butsometimes it's just not their fault. I was oncelate to my own speech on time management.We all had to just take a moment together andsavor that irony.
 
 2 The second thing they assume is that I have lots of tips and tricks for saving bits of time here and there. Sometimes I'll hear from magazines that are doing a story along these lines, generally on how to help their readers find an extra hour in the day. And the idea isthat we'll shave bits of time off everyday activities, add it up, and we'll have time for thegood stuff. I question the entire premise of thispiece, but I'm always interested in hearing what they've come up with before they callme. Some ofmy favorites: doing errands where you only have to make right-hand turns.Being extremely judicious in microwaveusage: it says three to three-and-a-half minuteson the package, we're totally getting in on the bottom side of that.
 
