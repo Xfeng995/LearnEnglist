@@ -6,15 +6,15 @@ When people find out I write about time management, they assume two things. One 
 
 当人们发现我写关于时间管理的文章时，他们都会假设两件事:第一，我永远都准时，但我并不是。我有四个小孩，我偶尔将迟到归咎于他们，不过有时候真的不是因为他们。我有一次在去我的一个关于 时间管理的演讲时迟到了。我们都需要一点时间去好好地体味一下这有多么讽刺。
 
-The second thing they assume is that I have lots of tips and tricks for saving bits of time here and there. Sometimes I'll hear from magazines that are doing a story along these lines, generally on how to help their readers find an extra hour in the day. And the idea is that we'll shave bits of time off everyday activities, add it up, and we'll have time for the good stuff. I question the entire premise of this piece, but I'm always interested in hearing what they've come up with before they call me. Some of my favorites: doing errands where you only have to make right-hand turns.Being extremely judicious in microwaveusage: it says three to three-and-a-half minuteson the package, we're totally getting in on the bottom side of that.
+The second thing they assume is that I have lots of tips and tricks for saving bits of time here and there. Sometimes I'll hear from magazines that are doing a story along these lines, generally on how to help their readers find an extra hour in the day. And the idea is that we'll shave bits of time off everyday activities, add it up, and we'll have time for the good stuff. I question the entire premise of this piece, but I'm always interested in hearing what they've come up with before they call me. Some of my favorites: doing errands where you only have to make right-hand turns.Being extremely judicious in microwave usage: it says three to three-and-a-half minutes on the package, we're totally getting in on the bottom side of that.
 
-第二，人们总是假设我有很多关于如何节省时间的贴士和技巧。有时候我听说一些杂志在写这方面的故事，通常都是关于教读者如何 在一天中获得额外一个小时。基本思路就是从日常的 每个活动中挤出一点时间，加起来，然后我们就有时间去做更有意思的事情了。 我对这个说法持保留意见，不过我还是愿意听听他们在找我之前有什么想法。我最喜欢的几个是:只完成那些只需要右转的事;在用微波炉时，要极度审慎:当食物包装上面写了3到3.5分钟时，我们要挑时间最短的那个。
+第二，人们总是假设我有很多关于如何节省时间的贴士和技巧。有时候我听说一些杂志在写这方面的故事，通常都是关于教读者如何在一天中获得额外一个小时。基本思路就是从日常的 每个活动中挤出一点时间，加起来，然后我们就有时间去做更有意思的事情了。 我对这个说法持保留意见，不过我还是愿意听听他们在找我之前有什么想法。我最喜欢的几个是:只完成那些只需要右转的事;在用微波炉时，要极度审慎:当食物包装上面写了3到3.5分钟时，我们要挑时间最短的那个。
 
-And my personal favorite, which makes senseon some level, is to DVR your favorite showsso you can fast-forward through thecommercials. That way, you save eightminutes every half hour, so in the course oftwo hours of watching TV, you find 32minutes to exercise.Which is true. You knowanother way to find 32 minutes to exercise?Don't watch two hours ofTV a day, right?
+And my personal favorite, which makes senseon some level, is to DVR your favorite showsso you can fast-forward through the commercials. That way, you save eight minutes every half hour, so in the course of two hours of watching TV, you find 32minutes to exercise.Which is true. You knowanother way to find 32 minutes to exercise?Don't watch two hours of TV a day, right?
 
-我个人最喜欢的是，录下你最喜欢看的电视剧，然后你就可以跳过广告了。其实在某个程度上，还是挺有道理的。这样，你每半个小时就可以挤出八分钟。那么你葱用来看电视的两个小时中，可以挤出32分钟锻炼的时间。倒的确是这么回事儿。你还知道其他可以找到 32分钟锻炼时间的方法吗?不要每天都看两个小时 电视就行了，对吧?
+我个人最喜欢的是，录下你最喜欢看的电视剧，然后你就可以跳过广告了。其实在某个程度上，还是挺有道理的。这样，你每半个小时就可以挤出八分钟。那么你从用来看电视的两个小时中，可以挤出32分钟锻炼的时间。倒的确是这么回事儿。你还知道其他可以找到 32分钟锻炼时间的方法吗?不要每天都看两个小时 电视就行了，对吧?
 
-Anyway, the idea is we'll save bits of time here and there, add it up, we will finally get to every thing we want to do. But after studying how successful people spend their time and looking at their schedules hour by hour, Ithink this idea has it completely backward. Wedon't build the lives we want by saving time.We build the lives we want, and then timesaves itself
+Anyway, the idea is we'll save bits of time here and there, add it up, we will finally get to every thing we want to do. But after studying how successful people spend their time and looking at their schedules hour by hour, I think this idea has it completely backward. We don't build the lives we want by saving time.We build the lives we want, and then time saves itself
 
 总之，就是要在各处都省点时间，加起来就有时间 做我们想做的事了。但在我了解成功的人如何分配时间，并看过了他们的时间表后，我觉得这个想法是 完全本末倒置的。我们不是通过节省时间来 打造我们想过的生活。手我们应该先建立我们想要的生活，时间就会自然而然节省出来。 我来解释一下。
 
