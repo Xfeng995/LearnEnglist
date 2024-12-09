@@ -22,11 +22,11 @@ Here's what I mean. I recently did a time diary project looking at 1,001 days in
 
 我来解释一下。我最近有个时间日记项目，观察最忙碌的女士生命中的1001天。她们工作繁忙，有时候是自己的生意,有时候要照顾自己的孩子，或者是照顾父母，还有服务社区等等都是一些很忙的人。我让她们记录了一星期的行程，计算她们工作和睡觉的时间，为了我的书，我还采访 了解了她们的常用策略。
 
-One of the women whose time log I studiedgoes out on a Wednesday night for somethingShe comes home to find that her water heaterhas broken, and there is now water all overher basement.
+One of the women whose time log I studied goes out on a Wednesday night for something.She comes home to find that her water heater has broken, and there is now water all over her basement.
 
 其中一个被我研究过时间表的女士，在一个周三晚上出去了一趟， 回家发现她的热水器坏了，地下室都被水淹了。
 
-If you've ever had anything like this happen toyou, you know it is a hugely damaging,frightening, sopping mess. So she's dealingwith the immediate aftermath that night, nextday she's got plumbers coming in, day afterthat, professional cleaning crew dealing withthe ruined carpet. All this is being recorded onher time log. Winds up taking seven hours ofher week.Seven hours. That's like finding anextra hour in the day.
+If you've ever had anything like this happen to you, you know it is a hugely damaging,frightening, sopping mess. So she's dealing with the immediate after math that night, nextday she's got plumbers coming in, day after that, professional cleaning crew dealing with the ruined carpet. All this is being recorded on her time log. Winds up taking seven hours ofher week.Seven hours. That's like finding an extra hour in the day.
 
 如果你也遇到过这种事儿的话，你会知道眼前的景象 多么令人崩溃和沮丧。于是那个晚上她立刻着手处理，第二天她找了一个水管工，第三天找了专业的清理人员 来处理损坏的地毯。所有这些都算在了她的时间表内。总共花了她一周中的七个小时。七个小时。这就等于一周七天 每天都要挤出一个小时。
 
