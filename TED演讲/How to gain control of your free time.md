@@ -2,7 +2,7 @@
 auther:Laura Vanderkam
 url：[抖音视频](https://www.douyin.com/user/MS4wLjABAAAADx_DrMSHQFY57xBVQDhOPyQnnwcaS2Vh6aqW3EQN2ntjJyJMVeJngLHnVAaJScGf?from_tab_name=main&modal_id=7348456391679446313)
 
-When people find out I write about time management, they assume two things. One is that I'm always on time, and I'm not. I have four small children, and I would like to blame them for my occasional tardiness, but sometimes it's just not their fault. I was oncelate  to my own speech on time management.We all had to just take a moment together and savor that irony.
+When people find out I write about time management, they assume two things. One is that I'm always on time, and I'm not. I have four small children, and I would like to blame them for my occasional tardiness, but sometimes it's just not their fault. I was once late  to my own speech on time management.We all had to just take a moment together and savor that irony.
 
 当人们发现我写关于时间管理的文章时，他们都会假设两件事:第一，我永远都准时，但我并不是。我有四个小孩，我偶尔将迟到归咎于他们，不过有时候真的不是因为他们。我有一次在去我的一个关于 时间管理的演讲时迟到了。我们都需要一点时间去好好地体味一下这有多么讽刺。
 
