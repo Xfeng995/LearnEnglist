@@ -28,7 +28,7 @@ One of the women whose time log I studied goes out on a Wednesday night for some
 
 If you've ever had anything like this happen to you, you know it is a hugely damaging,frightening, sopping mess. So she's dealing with the immediate after math that night, nextday she's got plumbers coming in, day after that, professional cleaning crew dealing with the ruined carpet. All this is being recorded on her time log. Winds up taking seven hours ofher week.Seven hours. That's like finding an extra hour in the day.
 
-如果你也遇到过这种事儿的话，你会知道眼前的景象 多么令人崩溃和沮丧。于是那个晚上她立刻着手处理，第二天她找了一个水管工，第三天找了专业的清理人员 来处理损坏的地毯。所有这些都算在了她的时间表内。总共花了她一周中的七个小时。七个小时。这就等于一周七天 每天都要挤出一个小时。
+# 如果你也遇到过这种事儿的话，你会知道眼前的景象 多么令人崩溃和沮丧。于是那个晚上她立刻着手处理，第二天她找了一个水管工，第三天找了专业的清理人员 来处理损坏的地毯。所有这些都算在了她的时间表内。总共花了她一周中的七个小时。七个小时。这就等于一周七天 每天都要挤出一个小时。
 
 But I'm sure if you had asked her at the start ofthe week, "Could you find seven hours to trainfor a triathlon?" "Could you find seven hoursto mentor seven worthy people?" I'm sure shewould've said what most of us would've said,which is, "No -- can't you see how busy I am?Yet when she had to find seven hours becausethere is water all over her basement, she foundseven hours. And what this shows us is thattime is highly elastic.We cannot make moretime, but time will stretch to accommodatewhat we choose to put into it.
 
