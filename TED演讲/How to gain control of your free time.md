@@ -18,7 +18,7 @@ Anyway, the idea is we'll save bits of time here and there, add it up, we will f
 
 总之，就是要在各处都省点时间，加起来就有时间 做我们想做的事了。但在我了解成功的人如何分配时间，并看过了他们的时间表后，我觉得这个想法是 完全本末倒置的。我们不是通过节省时间来 打造我们想过的生活。手我们应该先建立我们想要的生活，时间就会自然而然节省出来。 
 
-Here's what I mean. I recently did a time diary project looking at 1,001 days in the lives of extremely busy women. They had demanding jobs, sometimes their own businesses, kids to care for, maybe parents to care for,community commitments --busy, busypeople. I had them keep track of their time fora week so I could add up how much theyworked and slept, and I interviewed themabout their strategies, for my book.
+Here's what I mean. I recently did a time diary project looking at 1,001 days in the lives of extremely busy women. They had demanding jobs, sometimes their own businesses, kids to care for, maybe parents to care for,community commitments --busy, busy people. I had them keep track of their time for a week so I could add up how much they worked and slept, and I interviewed them about their strategies, for my book.
 
 我来解释一下。我最近有个时间日记项目，观察最忙碌的女士生命中的1001天。她们工作繁忙，有时候是自己的生意,有时候要照顾自己的孩子，或者是照顾父母，还有服务社区等等都是一些很忙的人。我让她们记录了一星期的行程，计算她们工作和睡觉的时间，为了我的书，我还采访 了解了她们的常用策略。
 
